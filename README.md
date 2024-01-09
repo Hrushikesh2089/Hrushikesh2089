@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Hrushikesh Kale
+- 👀 I’m interested in AIML
+- 🌱 I’m currently learning CSE(AI)
+- 💞️ I’m looking to collaborate on AIML projects
+- 📫 Reach me @hrushikesh2019@gmail.com
+- 😄 Pronouns: He
